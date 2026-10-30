@@ -1,11 +1,10 @@
-- 👋 Hi, I’m Lynn Pennington (don't care about LennyWennington. It's just a pronounw
+- 👋 Hi, I’m Lynn Pennington (don't care about LennyWennington. Treat it like a careless typeerr)
 - 👀 I’m a student,a rc scale model glider builder ,a slope ds and thermal flyer,a multi language learner
 - 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate on ...
 - 📫 Feel free to reach me through:
-  Instagram glowpaws07
-  QQ QID Glowpaws
-  email season20210823@163.com
+
+
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
